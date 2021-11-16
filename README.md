@@ -1,4 +1,4 @@
-# INFORMATOIO
+# INFORMATORIO
 
 Rodrigo Humberto Molina
 
